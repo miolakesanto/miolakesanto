@@ -5,7 +5,6 @@
 - 📫 How to reach me ... WTF YOU SAY THAT GitHub!?
 - 😄 Pronouns: miolakesanto.
 - ⚡ Fun fact: No one at my school knows I'm pro at NotITG.
-
 <!---
 i like NotITG
 --->
